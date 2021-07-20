@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MorningAmnesia
+- 👀 I’m interested in reading, writing, crafting, cosplay, ttprgs, larp, board games, video games, and stories 
+- 🌱 I’m currently learning to code.
+- 💞️ I’m looking to collaborate on storytelling experiences.
+- 📫 How to reach me by email at Kris.Hill@shopify.com
